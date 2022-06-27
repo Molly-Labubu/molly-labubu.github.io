@@ -4,9 +4,9 @@ To learn more about [me](https://global.popmart.com) just click on "me".
 
 See me [tweet](https://twitter.com/POPMARTGlobal) just click on "tweet".
 
-To [see](www.facebook.com/popmartglobal/) me on Facebook just click on "see".
+To [see](https://www.facebook.com/popmartglobal/) me on Facebook just click on "see".
 
-To [buy](https://www.aliexpress.com/wholesale?catId=0&SearchText=pop+mart)me just click on "buy".
+To [buy](https://www.aliexpress.com/wholesale?catId=0&SearchText=pop+mart) me just click on "buy".
 
 .
 
