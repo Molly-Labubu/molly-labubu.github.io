@@ -2,6 +2,15 @@
 
 To learn more about [me](https://global.popmart.com) just click on "me".
 
+See me [tweet](https://twitter.com/POPMARTGlobal) just click on "tweet".
+
+To [see](www.facebook.com/popmartglobal/) me on Facebook just click on "see".
+
+
+
+
+
+
 
 You can use the [editor on GitHub](https://github.com/Molly-Labubu/molly-labubu.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
 
