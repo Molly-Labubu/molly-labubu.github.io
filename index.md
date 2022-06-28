@@ -9,7 +9,7 @@ To [see](https://www.facebook.com/popmartglobal/) me on Facebook just click on "
 
 To [buy](https://www.aliexpress.com/wholesale?catId=0&SearchText=pop+mart) me just click on "buy".
 
-To [learn](https://www.myplasticheart.com/) more just click on "more".
+To [learn](https://www.myplasticheart.com/) more just click on "learn".
 
 .
 
